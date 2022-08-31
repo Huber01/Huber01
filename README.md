@@ -15,7 +15,7 @@ What really gets me, is the fact that anything is possible when you start coding
 In my time in the navy I've learnt that the best way to work is teamwork. Two minds set together are always better than one. 
 The trick is syncing them up. That's where the experience comes in. I´ve led many teams in different situations and performing various activities (sailing through ice, sea to land replenishment, ship salvage and diving, peacekeeping operations, amongst others) and found out I really like building teams. My key to success is very good communication, let my teammates know whats going on, and I expect the same back. And of course, ALWAYS remain CALM. 
 
-Now, I want to learn how to work efficiently in a Development team. I have to keep on learning, see how its done from the scratch. I am ready to dive deep and start coding. I am open to work and look forward to work 100% remote.
+Now, I want to learn how to work efficiently in a Development team. I have to keep on learning, see how its done from the scratch. I am ready to dive deep, pull my weight and start coding. I am open to work and look forward to work remotely.
 
 If you are interested please contact me. My personal information is in my profile, but I'll put it in here as well, so you don't have to keep on looking!
 
