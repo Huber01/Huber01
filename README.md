@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am Agustin Juan Rubi, and have just finished Soy Henry, a five month Fullstack Development Bootcamp with more than 800 hrs of coding.
+I am Agustin Juan Rubi junior developer!
 
 I've had the chance to learn and build projects with these techs 
 
