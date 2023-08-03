@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am Agustin Juan Rubi junior developer!
+I am Agustin Juan Rubi!
 
 I've had the chance to learn and build projects with these techs 
 
